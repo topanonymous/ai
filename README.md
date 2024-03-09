@@ -1,7 +1,7 @@
 # 雷锋资源分享
 
 SORA视频生成软件(一天3小时免费额度)_MAC、Windows、安卓、苹果四端可用
-链接：https://pan.quark.cn/s/6f48d095a1cd
+https://pan.baidu.com/s/1y2OdgID07huxBTySJoHS-w?pwd=6666
 
 AI去衣(视频+直播)+AI换脸(视频+直播)软件，MAC、Windows、安卓、iphone版四合一免费分享(共4个软件，可购买，可白嫖，只需更换ip即可，具体看包内教程)
 链接:https://pan.baidu.com/s/1toMGrzvjgGTJrP210Olh1Q?pwd=6666 
