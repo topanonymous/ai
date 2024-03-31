@@ -1,4 +1,4 @@
-# 雷锋资源分享
+# AI工具资源分享
 
 换脸+一键去衣免费分享：电脑版专用_Mac，链接: https://pan.baidu.com/s/1-cDDpWgAXtfPVtwoyQL6kA?pwd=6666
 
