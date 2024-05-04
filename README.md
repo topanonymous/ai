@@ -13,3 +13,7 @@ AI一键去衣升级版免费分享啦！！！！！！！！安卓、苹果、
 超100000部！那种ASMR，你懂的，适合晚上听…免费下载链接:https://pan.baidu.com/s/1WHURpDSnXAs0SxgNUQi6Iw?pwd=6666 提取码:6666 解压密码：ziyuan_daheji
 
 1000部高清ai修复无删减版大型经典电视剧合集(附下载链接列表)免费下载链接:https://pan.baidu.com/s/1_-ERmskoX3YKk4Cgioz3Kw?pwd=6666 提取码:6666 解压密码：ziyuan_daheji
+
+1000部电子书大合集（h漫及各大出版社经典书籍，附目录）免费下载链接:https://pan.baidu.com/s/1VKsD01H2lUADXXxVEfE4yw?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
+
+考公资料大合集，各大名师名校老师精讲！视频、资料、真题全部奉送！免费下载链接:https://pan.baidu.com/s/1CKxquAk9C4B9Y40pFWuXYA?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
