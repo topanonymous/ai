@@ -17,3 +17,5 @@ AI一键去衣升级版免费分享啦！！！！！！！！安卓、苹果、
 1000部电子书大合集（h漫及各大出版社经典书籍，附目录）免费下载链接:https://pan.baidu.com/s/1VKsD01H2lUADXXxVEfE4yw?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
 
 考公资料大合集，各大名师名校老师精讲！视频、资料、真题全部奉送！免费下载链接:https://pan.baidu.com/s/1CKxquAk9C4B9Y40pFWuXYA?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
+
+考研资料大合集，名师讲解，各大培训机构视频、资料、真题一网打尽！链接:https://pan.baidu.com/s/1S-D8IaOAvajlYk6nCePXog?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
