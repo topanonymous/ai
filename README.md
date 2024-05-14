@@ -27,3 +27,5 @@ AI一键去衣升级版免费分享啦！！！！！！！！安卓、苹果、
 50万部超清VR资源（你懂的那种…）链接:https://pan.baidu.com/s/1OS4MNPI_5FNipwHDZPMm4Q?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
 
 AI绘画课程，422G！毫无保留全部分享！！你要的资料和工具全都有！！！链接:https://pan.baidu.com/s/1ThYQgfGLH9gwsiOB_iC3kA?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
+
+车用DJ大合集，180000首无损音质！链接:https://pan.baidu.com/s/1oPeUlCQ_1qmnyJxD8PBKBw?pwd=9999 提取码:9999 解压密码：ziyuan_daheji
