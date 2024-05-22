@@ -8,7 +8,7 @@ ai去衣软件分享：安卓、苹果、windows、mac整合版3.0 链接:https:
 
 超800000张，国漫大合集！荤素皆有！！男人的最爱……免费下载链接:https://pan.baidu.com/s/1LQSIGyl2Go7OlfqzTuVxFw?pwd=6666 ​提取码:6666 解压密码：ziyuan_daheji
 
-10000个科学上网破解软件！安卓、苹果、Windows、Mac全部都有！！最少够你用10年！！！免费下载链接:https://pan.baidu.com/s/1jz1JRc1BUsYcUwUlHeYUSQ?pwd=9999 提取码:6666 解压密码：ziyuan_daheji
+10000个科学上网破解软件！安卓、苹果、Windows、Mac全部都有！！最少够你用10年！！！免费下载链接:https://pan.baidu.com/s/1XEnnrtWJDZwb6eZ3nNo1rA?pwd=9999  提取码:6666 解压密码：ziyuan_daheji
 
 超100000部！那种ASMR，你懂的，适合晚上听…免费下载链接:https://pan.baidu.com/s/1WHURpDSnXAs0SxgNUQi6Iw?pwd=6666 提取码:6666 解压密码：ziyuan_daheji
 
